@@ -1,1 +1,0 @@
-# Prime-3.0-Apna-College-AI-ML
